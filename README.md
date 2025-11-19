@@ -1,8 +1,11 @@
-- hi, im rupt !! :D ⭐
+## hi, im rupt !! :D ⭐
+(any prns)
 - i make music n sometimes draw random stuff
-- im really insterested in game development
-- u can contact me on discord if needed --->> @corrupt_gmav
-- call me whatever u want (pronouns)
+- im really insterested in game development (mainly using/experimenting with godot and roblox studio)
+- i wanna get into programming a lot more
+- audhd creature
+- idk rlly o_o
+- current projects; VYROKROME, light off
 - :] !!
 
 <!---
